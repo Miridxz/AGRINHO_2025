@@ -1,0 +1,1 @@
+aki e onde a miuri a deve cololxcaer osd ngcx do readme '-'
